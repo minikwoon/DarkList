@@ -2,4 +2,4 @@
 
 #Info
 
-![Example Picture](https://paste.pics/da2dfb0eca0708c37aef7944252ef7e1)
+![Example Picture](https://hypixel.net/attachments/screen-shot-2022-04-11-at-11-52-25-am-png.2956716/?hash=5622839e648788fc9ff45ecb71604856)
